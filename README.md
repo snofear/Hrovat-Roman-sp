@@ -1,2 +1,0 @@
-# Hrovat-Roman-sp
-Elektronika
